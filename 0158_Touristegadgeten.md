@@ -1,8 +1,8 @@
 Vum Stool, iwwert Banken bis hin zum Schengener Oofkommes, Lëtzebuerg
 ass trotz senger Gréisst weltbekant. Dest kënnt virun allem dovun, datt
 säit 1850 grouß Stool an Eisenwierker entweckelt goufen, an 1929
-Lëtzebebuerg dee siewen. gréissten Stoolproduzent op der Welt wor. Fir
-eng gesammt Landesfläch vun nëmmen 2586 km² ass dat schonn eng grouss
+Lëtzebebuerg dee 7. gréissten Stoolproduzent op der Welt wor. Fir eng
+gesammt Landesfläch vun nëmmen 2586 km² ass dat schonn eng grouss
 Leeschtung gewierscht. An den 60er Joeren huet Lëtzebuerg dunn op Banken
 gesat, virun allem well di Auslännesch Gesetzer immens restriktiv waren,
 wouvun d'Groussherzogtum profitéiert huet. Banne kirzter Zäit huet sech
