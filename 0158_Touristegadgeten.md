@@ -7,8 +7,8 @@ Leeschtung gewierscht. An den 60er Joeren huet Lëtzebuerg dunn op Banken
 gesat, virun allem well di Auslännesch Gesetzer immens restriktiv waren,
 wouvun d'Groussherzogtum profitèiert huet. Banne kirzter Zäit huet sech
 eng héisch Unzuel vun internationale Banken hei niddergeloos.
-Hautdesdags, mëscht de Bankeveirel een feneftel vum Bruttoinlandprodukt
-aus an bréngt een drettel vun de gesamte Steierannahmen vum Staat aus.
+Hautdesdags, mëscht de Bankeveirel een feneftel vum BIP aus an bréngt
+een drettel vun de gesamte Steierannahmen vum Staat aus.
 
 „Let's make it happen" ass d'Ënnerschrëft vun der 2013 ausgeschaffter
 Strategie fir de Bekanntheetsgrad vu Lëtzebuerg ze steigeren, suwuel
